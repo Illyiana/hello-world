@@ -1,2 +1,3 @@
 # hello-world
-Just another repository
+Illyiana Barbara Soto
+Im 17, overthinker, creative. 
